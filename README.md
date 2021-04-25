@@ -18,4 +18,4 @@ The web is full of opinions, and some of these can be negative. Social media all
 
 Social media continues to have a sizable influence on buying habits. Social media marketing helps you determine which platforms are suited to your brand, using analytics to find the right markets and increase your lead generation.
 
-https://tmbyrket.github.io/Horiseon/
+To increase your Lead Generation, Brand Awareness, and Cost Management check out the link [here](https://tmbyrket.github.io/Horiseon/)
